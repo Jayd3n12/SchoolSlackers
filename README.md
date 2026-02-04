@@ -1,4 +1,4 @@
 # SchoolSlackers
-* [Google](www.google.com) 
+* [Google](Https://google.com) 
 
-* [TikTok](www.tiktok.com)
+* [TikTok](https://tiktok.com)
