@@ -1,2 +1,2 @@
 # SchoolSlackers
-https://linktr.ee/schoolslackers 
+google.com
