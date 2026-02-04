@@ -1,2 +1,2 @@
 # SchoolSlackers
-google.com 
+www.google.com 
